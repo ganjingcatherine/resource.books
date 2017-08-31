@@ -35,4 +35,18 @@
 Relead_Leadership for Tomorrow -Brochure [Download 下载](http://yimuhe.com/file-4171928.html)<br>
 What Money Can't Buy-the moral limits of markets-Michael J Sandel [Download 下载](http://yimuhe.com/file-4171929.html)<br>
 台湾，我不是来玩的-马军 [Download 下载](http://yimuhe.com/file-4171938.html)<br>
-
+致我们终将逝去的青春 - 辛夷坞 [Download 下载]()<br>
+自控力 [Download 下载]()<br>
+胡平：犬儒病——当代中国的精神危机 [Download 下载]()<br>
+绝望锻炼了我_朴槿惠自传 [Download 下载]()<br>
+经济学原理 [Download 下载]()<br>
+索尼的故事 [Download 下载]()<br>
+第七天 [Download 下载]()<br>
+社会契约论 [Download 下载]()<br>
+男女性爱知识大全 [Download 下载]()<br>
+灵山 [Download 下载]()<br>
+清醒思考的艺术 [Download 下载]()<br>
+洗脑术：怎样有逻辑地说服他人-高德 [Download 下载]()<br>
+沉默的告白-余杰 [Download 下载]()<br>
+毛泽东、斯大林与朝鲜战争 [Download 下载]()<br>
+此时此地 [Download 下载]()<br>
