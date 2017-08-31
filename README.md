@@ -50,3 +50,18 @@
 Relead_Leadership for Tomorrow -Brochure [Download 下载](http://yimuhe.com/file-4171928.html)<br>
 What Money Can't Buy-the moral limits of markets-Michael J Sandel [Download 下载](http://yimuhe.com/file-4171929.html)<br>
 台湾，我不是来玩的-马军 [Download 下载](http://yimuhe.com/file-4171938.html)<br>
+麻美姐姐教你——手放在这里,女人会很想要 [Download 下载]()<br>
+鳄鱼街-布鲁诺·舒尔茨 [Download 下载]()<br>
+魔鬼搭讪学 [Download 下载]()<br>
+青春-韩寒 [Download 下载]()<br>
+陈寅恪的最后二十年-陆键东 [Download 下载]()<br>
+重来-[美]贾森·弗里德 [Download 下载]()<br>
+追寻现代中国 [Download 下载]()<br>
+迷男方法(The Mystery Method)-中文版 [Download 下载]()<br>
+资治通鉴全译本（柏杨版） [Download 下载]()<br>
+让·波德里亚 - 美国（一校） [Download 下载]()<br>
+西南联大的爱情往事-岚枫 [Download 下载]()<br>
+蒋经国日记 蒋经国 [Download 下载]()<br>
+蒋介石与现代中国-Tao Han (Jay Taylor) [Download 下载]()<br>
+菊与刀-（美）本尼迪克特 [Download 下载]()<br>
+茨威格-人类的群星闪耀时 [Download 下载]()<br>
